@@ -1,3 +1,3 @@
 bohemia rapsody - queen
-cigana - raça negra
+cara a cara - raça negra
 living on a prayer - bon jovi
